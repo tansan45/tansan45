@@ -1,7 +1,7 @@
 
 │
-  hi im tansan and i exist
+  hi
 │
-
+  vs ava dude
 ╰──────────────
 
